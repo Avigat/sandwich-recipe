@@ -1,1 +1,0 @@
-Need 2 pieces of bread, mayonese, 1 cheese slice, tomato ketchap.
