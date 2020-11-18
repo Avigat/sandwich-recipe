@@ -1,0 +1,1 @@
+Spread mayonese on 1 bread slice using a knife, place a cheese slice on the mayonese, place the other bread slice, serve with tomato ketchap.
